@@ -1,4 +1,4 @@
-
+Get ahead in escape tsunami for brainrots with custom escape tsunami for brainrots Script, featuring silent aim and no cooldown. Download now to dominate every match with ease and
 
 
 
